@@ -1,1 +1,1 @@
-Note:Download Python Before Download The Flie
+Note:Download Python Before Downloading The Flie
